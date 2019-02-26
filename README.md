@@ -3,7 +3,7 @@
 ```javasript
 最新地址一：http://www.segou22.com
 最新地址二：http://www.segou44.com
-永久地址：http://www.segou.cc
+永久地址：http://www.segou.cc   www.segou.tv
 ```
 ## ★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★
 ### 务必收藏下面永久地址发布页
